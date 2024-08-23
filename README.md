@@ -52,3 +52,5 @@ Modo de Preparo
 2Substitua a carne moída por frango desfiado com requeijão ou opte por versões vegetarianas, com abobrinha ou palmito.
 
 3As versões doces não precisam ir ao forno.
+![imagem](https://jundiai.demarchi.com.br/images/thumbs/0001392_panqueca-de-carne.jpeg)
+
